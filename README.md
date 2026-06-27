@@ -17,13 +17,7 @@
 
 > 📹 Gameplay Video
 
-**Coming Soon**
-
----
-
-## 📸 Screenshots
-
-> Screenshots will be added soon.
+https://github.com/user-attachments/assets/834ef637-ca45-4804-b8fa-917586dc13c8
 
 ---
 
